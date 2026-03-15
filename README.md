@@ -1,2 +1,2 @@
 assalamualaikum/n
-walaikumassalam/n
+walaikumassalam
